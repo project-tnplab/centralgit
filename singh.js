@@ -1,0 +1,1 @@
+akhir aisa hua kyu
